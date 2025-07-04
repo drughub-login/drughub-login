@@ -27,4 +27,6 @@ If you're looking to explore everything this darknet marketplace offers, make su
 
 
 
-Update: Fixed broken link, now active
+
+
+Update: Link is now active
