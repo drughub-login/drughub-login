@@ -29,4 +29,6 @@ If you're looking to explore everything this darknet marketplace offers, make su
 
 
 
-Update: Link is now active
+
+
+Update:  07.07.2025 11:45:36
